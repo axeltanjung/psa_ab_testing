@@ -1,4 +1,4 @@
-**AB Testing on Marketing **
+**AB Testing on Marketing**
 
 **Public Service Announcements (PSA) and Ads Campaign**
 
